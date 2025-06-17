@@ -1,4 +1,4 @@
-# LOKESH CHOWDARY(https://linktr.ee/lokeshabburi83)
+# [LOKESH CHOWDARY](https://linktr.ee/lokeshabburi83)
 
 <!--
 **lokesh08-A/lokesh08-A** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
